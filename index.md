@@ -2,7 +2,7 @@
 
 ![banner](/psychology/photos/banner.png)
 
-## The Study of the Self 
+## Understanding Yourself 
 
 > Always remember that you are absolutely unique.
 > Just like everyone else.  
